@@ -12,6 +12,8 @@
 - Fb Account password Hacking
 - fb Account Chat Exporting
 - And More Coming ..............
+- All tool Free in course
+
 
 ## Video Watch Time 20 Hours
 ## Buy and Support
